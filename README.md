@@ -1,1 +1,1 @@
-# notes
+# Poznámky všeho druhu
